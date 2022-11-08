@@ -28,7 +28,7 @@ What do these forecasts tell us about the tightest House races this cycle? For f
 ![](table_2022.png)
 
 
-Taken together, the Gov 1347 forecasts tell us that the Republicans expected to win a majority of seats in the House. The real question still remains, just how many seats will that be?
+Taken together, the Gov 1347 forecasts tell us that the Republicans are expected to win a majority of seats in the House. The real question still remains, just how many seats will that be?
 
 ## Forecaster blogs
 
